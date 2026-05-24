@@ -5,4 +5,4 @@
 
 [PRONOUNS.CC](https://pronouns.cc/@thelastknightt) -------------------------- [GUNS.LOL](https://guns.lol/optimusprimee) ----------- [PRNS.PAGE](https://en.pronouns.page/@optimusprimee)
 
-we're starting to open up about being a system
+we're starting to open up about being a system ( still extremely hesitant with this stuff )
